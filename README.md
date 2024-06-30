@@ -1,4 +1,8 @@
-- 👋 Hi, I’m @Medceptional
-Medceptional/Medceptional is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Hi I'm Medceptional aka Zoe! 
+I like coding, Discord and other stuff!
+I will slowly add to this page. 
+some things about me 
+Im 14
+Transfemale :3 
+A furry and fox therian :D
+Techtoker :P
