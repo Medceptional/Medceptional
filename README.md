@@ -7,5 +7,6 @@ Transfemale :3
 A furry and fox therian :D
 Techtoker :P
  I know HTML, Batch, Some lua and a little css. 
-I like organistation
-very stubborn :c 
+I like organisation
+Socials:
+@Medceptional - discord
